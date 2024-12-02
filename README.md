@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on
 -   - Nothing!
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Don't @ me
 
 <!---
 sycTeach/sycTeach is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
